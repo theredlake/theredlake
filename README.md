@@ -1,5 +1,2 @@
                "CORPSE LOCKED INSIDE THE BATHROOM, BLOOD INSIDE THE SINK. I WANT TO BE CATATONIC TO WHERE I DON'T EVEN THINK. BLEEDING OUT INSIDE MY CLOSET, METAL IN MY VOMIT"
-Heavy IWEC, I can seem unlike myself when I'm like this, I swear it isn't personal. 😢 My thoughts can be scattered and fuzzy. Don't make jokes about springlocking / ultimate custom night / the saferoom unless I'm at the moment also actively joking about it.
-
-
 This is an alt account of https://github.com/ikilledthosekidsin1985
