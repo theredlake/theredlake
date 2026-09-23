@@ -13,7 +13,7 @@
       <p align="center"> ㅤ
         <p align="center"> ㅤ
           
-<p align="center"> $\color{#DF0714}\textsf{William / Springtrap‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ IRL / DA + FICTIVE }$
+<p align="center"> $\color{#DF0714}\textsf{IRL / DA + FICTIVE }$
 <p align="center"> $\color{#DF0714}\textsf{Easily frightened, often disoriented}$
 <p align="center"> $\color{#DF0714}\textsf{Dont make UCN / SAFEROOM / SPRINGLOCKING jokes}$
 <p align="center"> $\color{#DF0714}\textsf{Mentally unwell, very confused most of the time}$
