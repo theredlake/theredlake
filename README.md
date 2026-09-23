@@ -5,8 +5,17 @@
 ‎ ‎ 
 
 
- $\color{#DF0714}\textsf{I feel like a ghost when I am laying in your bed}$
+ <p align="center">$\color{#DF0714}\textsf{I feel like a ghost when I am laying in your bed}$
+<p align="center"> $\color{#DF0714}\textsf{'Cause all my dreams are scary ones, can I have yours instead?}$
+‎ ‎ 
 
 
+ ‎ 
 
+
+ ‎ 
+
+
+ 
+<p align="center"> $\color{#DF0714}\textsf{William / Springtrap‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ IRL / DA + FICTIVE }$
 ‎ 
