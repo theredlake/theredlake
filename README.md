@@ -15,8 +15,7 @@
           <p align="center"> ㅤ
             <p align="center"> ㅤ
                <p align="center"> ㅤ
-                  <p align="center"> ㅤ
-                     <p align="center"> ㅤ
+
                        
 <p align="center"> $\color{#DF0714}\textsf{IRL / DA + FICTIVE }$
 <p align="center"> $\color{#DF0714}\textsf{Easily frightened, often disoriented}$
