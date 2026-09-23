@@ -4,19 +4,9 @@
 
 ‎ ‎ 
 
-
-<p align="center">$\color{#DF0714}\textsf{Reason? No I don't need a reasontestestestestestestestestestesttttttttttttttttttttesteste}$
-<p align="center"> $\color{#DF0714}\textsf{our paper hearts are bleeding, a bitterness}$
-‎<p align="center"> $\color{#DF0714}\textsf{repeating, repeating}$
-<p align="center"> $\color{#DF0714}\textsf{And you will, find no way to avoid this}$
-<p align="center"> $\color{#DF0714}\textsf{A cut up plastic likeness}$
-<p align="center"> $\color{#DF0714}\textsf{So suffer here in silence, in silence}$
- ‎ 
-
-
- ‎ 
-
-
- 
-<p align="center"> $\color{#DF0714}\textsf{William / Springtrap‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ IRL / DA + FICTIVE }$
 ‎ 
+‎ 
+‎ 
+‎ 
+
+<p align="center"> $\color{#DF0714}\textsf{William / Springtrap‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ IRL / DA + FICTIVE }$
